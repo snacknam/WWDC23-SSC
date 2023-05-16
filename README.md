@@ -16,4 +16,3 @@ Do you often admire the beautiful scenes of numerous stars and the moon rising a
 ### Resources
 - Moon Illustration from Freepik
 - Background Music(Dan Bodan - T'as où les vaches?) from YouTube Audio Library
-
